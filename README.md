@@ -1,11 +1,6 @@
 ### Hi!
+I am Aidan Resoles!
 
-I am Aidan Resoles, a Master's student working on the body wall proteomic response of sea cucumbers!
-
-### EDUCATION
-
-
-#### SKILLS and PROFICIENCIES
 
 
 <p align="center">
